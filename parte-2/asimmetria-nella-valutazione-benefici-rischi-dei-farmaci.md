@@ -26,7 +26,7 @@ Le dosi dei farmaci rispetto al peso corporeo sono in generale più alte nella f
 
 Sempre per dare alcuni esempi, senza essere esaustivi, si possono anche ricordare farmaci che hanno effetti avversi molto gravi rispetto alla loro reale utilità. Fra gli uricosurici, il febuxostat, pur non essendo più attivo dei farmaci già disponibili come l’allopurinolo, induce un aumento del 22% della mortalità da tutte le cause e una mortalità cardiovascolare del 32% più alta14. Gli antagonisti dell’endotelina, utilizzati per la terapia dell’ipertensione polmonare, inducono un aumento del 60% di malattie cardiovascolari e dell’80% dell’anemia15 rispetto ai controlli.
 
-Gli estrogeni associati ad alcuni progestinici come il levonorgestrel aumentano del 26% la probabilità di avere un embolismo polmonare16.  I farmaci antidepressivi, urologici e antiparkinson che esercitano effetti anticolinergici aumentano la probabilità di demenza senile anche se somministrati 20 anni prima17.
+Gli estrogeni associati ad alcuni progestinici come il levonorgestrel aumentano del 26% la probabilità di avere un embolismo polmonare16. I farmaci antidepressivi, urologici e antiparkinson che esercitano effetti anticolinergici aumentano la probabilità di demenza senile anche se somministrati 20 anni prima17.
 
 Molto spesso anche i benefici possono essere vanificati dall’incidenza di reazioni avverse. Ad esempio, si è osservato che preparati di cannabis sono in grado di diminuire la spasticità nell’ammalato di sclerosi multipla, ma nel suo complesso la qualità di vita non è modificata, probabilmente a causa degli effetti avversi della cannabis sul sistema nervoso centrale18.
 
